@@ -11,7 +11,7 @@
    
 ## 🧐 About
 
-- Hi, I'm quanka. I am a  9th grade high school student and I have been spending time with codes for about 2-3 years. I really dont know anything more about me.
+- Hi, I'm quanka. I am a  10th grade high school student and I have been spending time with codes for about 3-4 years. I really dont know anything more about me.
 - 👨‍💻 Website: http://rahimkeskin.ml
 - 📫 How to reach me: contact@rahimkeskin.ml
   
